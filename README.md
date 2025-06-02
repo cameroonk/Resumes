@@ -1,5 +1,5 @@
 # **Cameron Kasprzak**
-### **256-701-1080 | cameron-kasprzak@outlook.com | linkedin.com/cameron-kasprzak | github.com/cameroonk
+### 256-701-1080 | cameron-kasprzak@outlook.com | linkedin.com/cameron-kasprzak | github.com/cameroonk
 
 ## **EDUCATION**
 _Bachelor of Software Engineering | 3.7 GPA | Certificate of Cyber Defense | Auburn University_
